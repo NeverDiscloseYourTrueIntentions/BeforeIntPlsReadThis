@@ -18,6 +18,8 @@
 
 ⌦ 𝐈 𝐚𝐥𝐰𝐚𝐲𝐬 𝐠𝐨 𝐎𝐟𝐟𝐭𝐚𝐛, 𝐬𝐨 𝐈 𝐰𝐨𝐮𝐥𝐝 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐞 𝐢𝐭 𝐢𝐟 𝐲𝐨𝐮 𝐰𝐡𝐢𝐬𝐩𝐞𝐫𝐞𝐝 𝐭𝐨 𝐦𝐞.
 
+⌦ Very sensitive in some topic. i ditsant to you  not like always it's either i drained or you made me felt uncomfortable.
+
 
 
 # ![Image](https://github.com/user-attachments/assets/05950888-ac1d-4352-b8cb-3ec2e8a26328) ⊰ 𝑻𝒂𝒈 𝒊 𝒖𝒔𝒆𝒅 𝒐𝒏 𝑷𝒐𝒏𝒚 𝑻𝒐𝒘𝒏. ⊱
@@ -44,3 +46,23 @@
 ⌦ 『 DNIUCF || Do Not Intreact Unless close friend : You can give me a cuds, but don't talk or do anything else. unless close friend. close friend still can intreact me freely 』
 
 ⌦ 『 DNIUID || Do Not Intreact Unless I Do : You can give me a cuddle, but don't talk or do anything else. unless I do talk first 』
+
+#![Image](https://github.com/user-attachments/assets/05950888-ac1d-4352-b8cb-3ec2e8a26328) ⊰ Dni+Very Iwec list ⊱
+
+⌦ Dni : 
+
+i block free..
+
+<spoiler> GLAIN. reason :i fucking hate them with my soul after they fucking made my former oomf uncomfortable and also invaded my privacy and say it a harmless </spoiler>
+
+Iwec :
+
+<spoiler> Glain friend+lover. i swear you all just same. </spoiler>
+
+⌦ Supersus, forsaken, dandy world fandom
+
+⌦ Rude people
+
+⌦ sharing my embrassed moment without my consent.
+
+⌦ People who loved invading people privacy.

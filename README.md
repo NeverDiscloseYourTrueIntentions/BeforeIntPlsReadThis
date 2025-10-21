@@ -14,8 +14,6 @@
 
 ⌦ 𝙾𝚗𝚕𝚢 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚌𝚊𝚗 𝚐𝚒𝚟𝚎 𝚖𝚎 𝚗𝚒𝚌𝚔𝚗𝚊𝚖𝚎𝚜
 
-⌦ Read this : https://rentry.co/talkaboutmycase (before rudely come to me)
-
 ⌦ 𝐈 𝐚𝐥𝐰𝐚𝐲𝐬 𝐠𝐨 𝐎𝐟𝐟𝐭𝐚𝐛, 𝐬𝐨 𝐈 𝐰𝐨𝐮𝐥𝐝 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐞 𝐢𝐭 𝐢𝐟 𝐲𝐨𝐮 𝐰𝐡𝐢𝐬𝐩𝐞𝐫𝐞𝐝 𝐭𝐨 𝐦𝐞.
 
 ⌦ Very sensitive in some topic. i ditsant to you  not like always it's either i drained or you made me felt uncomfortable.

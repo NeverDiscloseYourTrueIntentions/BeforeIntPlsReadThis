@@ -51,13 +51,10 @@
 
 ⌦ Dni : 
 
-i block free..
+i block free.. if i felt uncomfortable.
 
-<spoiler> GLAIN. reason :i fucking hate them with my soul after they fucking made my former oomf uncomfortable and also invaded my privacy and say it a harmless </spoiler>
 
 Iwec :
-
-<spoiler> Glain friend+lover. i swear you all just same. </spoiler>
 
 ⌦ Supersus, forsaken, dandy world fandom
 
